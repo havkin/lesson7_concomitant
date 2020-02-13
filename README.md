@@ -1,1 +1,1 @@
-# lesson7_concomitant
+ https://havkin.github.io/lesson7_concomitant/
